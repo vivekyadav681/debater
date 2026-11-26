@@ -1,0 +1,5 @@
+I propose the motion because relationships are built on the currency of presence, consistency, and mutual investment, not abstract titles. 
+
+Here is the reality: a long-distance partner can offer affection through a screen, but they cannot show up when your car breaks down, bring you soup when you are sick, or sit with you in the quiet, heavy moments of daily life. That emotional and physical labor falls squarely on the friends who are actually there—day in and day out. 
+
+To demand that someone prioritize a theoretical, pixelated presence over the tangible, daily sacrifice of a local friend is fundamentally unfair. Loyalty and priority should be earned through proximity and real-world support, not geography. If I am the one providing the care, the consistency, and the community that sustains them through their daily struggles, then basic reciprocity dictates that my place in their life should reflect that immense investment.
